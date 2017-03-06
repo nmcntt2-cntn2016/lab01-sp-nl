@@ -2,3 +2,4 @@
 lab01-sp-nl created by GitHub Classroom
 nhóm : SP_NL
 1 2 3 4 5 hey hey hey oh la lal la la con gà trống đứng ngóng cổ dài
+cháu lên ba, cháu vô mẫu giáo, cô thương cháu vì cháu không khóc nhè
